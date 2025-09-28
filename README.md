@@ -1,0 +1,1 @@
+# wosstarot.github.io
